@@ -1,3 +1,3 @@
 # LAMENT
 Make your URL short like Xiao. **LAMENT**
-![Xiao lament](https://tenor.com/view/xiao-lament-xiao-lament-lamenting-lamentingrn-gif-26844290)
+![Xiao LAMENT](https://media1.tenor.com/m/dOcNxhr0OooAAAAd/xiao-lament.gif)
